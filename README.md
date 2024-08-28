@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @francinhaa
 - 👀 I’m interested in dinheiro
 - 🌱 I’m currently learning adm
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 💞️ I’m looking to collaborate on direito
+- 📫 How to reach me mariaa.franca
 - 😄 Pronouns she
 - ⚡ Fun fact: ...
 
